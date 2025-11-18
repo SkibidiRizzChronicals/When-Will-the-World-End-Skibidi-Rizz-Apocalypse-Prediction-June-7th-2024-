@@ -7,7 +7,8 @@ Be sure to take this end of the world scientific prediction seriously. These eve
 
 Predicted Event Sequence:
 
-    Exactly 67,000 NPCs simultaneously shout "gyat," generating an energy resonance above the Sigma Threshold that will send a shockwave throughout the universe's cheeks.
+    Exactly 67,000 NPCs simultaneously shout "gyat," generating an energy resonance above the Sigma Threshold that will send a 
+    shockwave throughout the universe's cheeks.
 
     The resonance triggers a cosmic-scale toilet flush like that of a gen alpha black hole, erasing the existing timeline.
 
